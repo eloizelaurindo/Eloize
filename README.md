@@ -1,4 +1,4 @@
-**oi eu sou a Eloize uma estudante.**
-Bem vindo meu perfil. 
-![](https://media.tenor.com/CgGf-l5pQWcAAAAM/cat-heart-eyes-yoonmilkers.gif)
-
+### Bem vindo ao meu perfil!😸
+### Meu nome é Eloize e sou estudante. 
+- Utilizo esse espaço para compartilhamento dos meu projetos.
+/[](https://media.tenor.com/JR6q0Nvzr_wAAAAM/baby-yoda.gif)
